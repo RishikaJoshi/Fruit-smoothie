@@ -1,0 +1,1 @@
+ It is a healthy Fruit smoothie/drink
